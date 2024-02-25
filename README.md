@@ -1,0 +1,6 @@
+- 👋 Hi, I’m @Z0G1M0N77
+- 👀 I’m interested in Coding/Programming/Random Computer-Related stuff
+- 🌱 I’m currently learning Java, HTML, CSS
+- 💞️ I’m looking to collaborate on Nothing
+- 😄 Pronouns: He/Him
+- ⚡ Fun fact: Im 14
